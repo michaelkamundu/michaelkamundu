@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @michaelkamundu
 - 👀 I’m interested in economy and construction 
-- 🌱 I’m currently learning the developme nt of my region
+- 🌱 I’m currently learning the development of my region
 - 💞️ I’m looking to collaborate on a big compuny
 - 📫 How to reach me 
 - 😄 Pronouns : Michael 
